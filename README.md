@@ -219,4 +219,4 @@ SpellForce 2 is available as a full free version with all features and updates i
 Ready to embark on an epic adventure? **Download SpellForce 2 for free now and unleash your strategic genius!**
 
 ---
-**Last updated:** 2026-09-18 00:58:06 UTC
+**Last updated:** 2026-09-18 05:37:54 UTC
